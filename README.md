@@ -11,6 +11,9 @@
 
 -Pronome: Macho alfa 🐺
 
+![](https://media1.tenor.com/m/SBjF0dimXtwAAAAd/when-you.gif)
+
+
 -Curiosidade: Gosto muito de jogos e de programar 🦖
 <!--
 **keirrisongreco/keirrisongreco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
