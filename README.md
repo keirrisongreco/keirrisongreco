@@ -11,7 +11,7 @@
 
 -Pronome: Macho alfa 🐺
 
-![](https://media1.tenor.com/m/SBjF0dimXtwAAAAd/when-you.gif)
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExNXdubXB0YnRlZ2treXNmN2cxaWF4M3JoajNiZGpoYXZoNGJjNHYwNCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/h7YvI2Lgpblfi/giphy.webp)
 
 
 -Curiosidade: Gosto muito de jogos e de programar 🦖
